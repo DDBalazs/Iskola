@@ -1,1 +1,1 @@
-# Iskola
+# Iskolai faszságok
